@@ -7,7 +7,7 @@
 
 - 👯 I’m looking to collaborate on **making minecraft mods for servers!**
 
-- 📫 How to reach me **ntyt.bu@gmail.com**
+- 📫 How to reach me **inquire@nothrottle.com**
 
 - ⚡ Fun fact **I got interested in programming because of minecraft.**
 
